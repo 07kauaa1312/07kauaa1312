@@ -10,3 +10,6 @@ meu nome e Kaua Vinicius.
 ### Voce pode entrar em contato comigo 🇦🇺
 
 Kaua.gamalier.santos@escola.pr.gov.br
+
+
+![](https://media.tenor.com/ea3P9_CRVwIAAAAd/neymar-neymar-jr.gif)
