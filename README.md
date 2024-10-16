@@ -7,7 +7,7 @@ meu nome é Kaua Vinicius.
 - Utilizo esse espaço para minha organizaçao e compartilhamento do meus projeto.
 
 
-### Voce pode entrar em contato comigo 🇦🇺
+### Voce pode entrar em contato comigo 🇧🇷
 
 Kaua.gamalier.santos@escola.pr.gov.br
 
