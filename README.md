@@ -1,6 +1,6 @@
 ### Bem vindo ao meu perfil.🖕🏽
 
-meu nome é Kaua Vinicius.
+meu nome é Kauã Vinicius.
 
 - Utilizo plataforma Alura para aprender sobre programação.
 - Estou me desenvolvendo nas Linguagens Java Script,HTML e CSS
