@@ -5,7 +5,7 @@ meu nome é Kauã Vinicius.
 - Utilizo plataforma Alura para aprender sobre programação.
 - Estou me desenvolvendo nas Linguagens Java Script,HTML e CSS
 - Utilizo esse espaço para minha organizaçao e compartilhamento do meus projeto.
-- chama no instagram @kauavg_
+- chama no instagram @kauavg__
 
 
 ### Voce pode entrar em contato comigo 📲
